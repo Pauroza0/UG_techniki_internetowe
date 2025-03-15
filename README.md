@@ -1,1 +1,0 @@
-# UG_techniki_internetowe
